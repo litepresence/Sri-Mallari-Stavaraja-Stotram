@@ -3,9 +3,7 @@
 # Śrī Mallāri Stavarāja Stotram
 ## Hover like a Bee at Mallāri’s Lotus Feet
 
-AI Translation by litepresence
-
-Published by squidKid-deluxe
+### The First English Translation
 
 Copyleft 2025: May this merit benefit all beings!
 
